@@ -4,6 +4,6 @@
 
 ## Eggs as food
 
-## Eggs during Easter
+## Eggs in ritual
 
 ## ???
