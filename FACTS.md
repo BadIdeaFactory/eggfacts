@@ -5,9 +5,9 @@ _Many facts copyright Wikipedia authors or the Wikimedia Foundation, licensed CC
 
 ## In the beginning, the egg
 
-The world egg, cosmic egg or mundane egg is a mythological motif found in the creation myths of many cultures and civilizations. Typically, the world egg is a beginning of some sort, and the universe or some primordial being comes into existence by "hatching" from the egg.
-
 An evaporating gas globule or EGG is a region of hydrogen gas in outer space approximately 100 astronomical units in size, such that gases shaded by it are shielded from ionizing UV rays. Dense areas of gas shielded by an evaporating gas globule can be conducive to the birth of stars.
+
+The world egg, cosmic egg or mundane egg is a mythological motif found in the creation myths of many cultures and civilizations. Typically, the world egg is a beginning of some sort, and the universe or some primordial being comes into existence by "hatching" from the egg.
 
 Dinosaurs laid eggs, some of which have been preserved as petrified fossils.
 
